@@ -1,0 +1,2 @@
+# sametinyara
+Bakma
